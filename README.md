@@ -35,7 +35,7 @@ Perfect for:
 **MUHAMMAD IRTIZA KHAN** ✨  
 
 
-🔗 **Live Demo:** []
+🔗 **Live Demo:** [https://muhmmmadirtizakhan.github.io/MathNexus-/]
 
 
 
